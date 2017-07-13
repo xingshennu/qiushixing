@@ -1,0 +1,2 @@
+# qiushixing
+new product manager
